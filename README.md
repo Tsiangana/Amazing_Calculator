@@ -1,2 +1,2 @@
-## Sejam Benvindos para esperimentarem e fazerem as modificações que quiserem
+## Sejam Bemvindos para esperimentarem e fazerem as modificações que quiserem
 ## Façam Forks
