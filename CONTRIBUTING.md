@@ -1,1 +1,1 @@
-You are free to do anything
+You are free to do everything
